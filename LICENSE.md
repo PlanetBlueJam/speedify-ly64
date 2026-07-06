@@ -1,4 +1,4 @@
-
+Enhance your Hola VPN experience with automatic Hola VPN Extension | static-IP + no-logs-policy, the #1 extension. Includes static-IP and no-logs-policy for a safer and more
 
 
 
